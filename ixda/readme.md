@@ -1,5 +1,5 @@
 Mastr - IXDA Video
 ================
 
-- [Video](https://StuartMcMaw.github.io/john-baskerville/v1.html)
+- [Video](https://www.youtube.com/watch?v=kqwTz8wrvvc&feature=youtu.be)
 
